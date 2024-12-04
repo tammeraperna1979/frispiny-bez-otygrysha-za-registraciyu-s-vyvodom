@@ -1,0 +1,1 @@
+# frispiny-bez-otygrysha-za-registraciyu-s-vyvodom
